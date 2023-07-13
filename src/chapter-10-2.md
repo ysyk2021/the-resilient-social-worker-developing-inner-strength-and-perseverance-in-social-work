@@ -1,4 +1,4 @@
-Chapter 9: Applying Resilience to Professional Growth: Setting Goals for Professional Growth through Resilience
+Setting Goals for Professional Growth through Resilience
 ===============================================================================================================
 
 Resilience is a critical skill for social workers, and it can be applied to professional growth and career development. By setting ambitious and achievable goals, social workers can use their resilience to drive their professional development. In this chapter, we will explore how social workers can set goals for their professional growth through resilience.

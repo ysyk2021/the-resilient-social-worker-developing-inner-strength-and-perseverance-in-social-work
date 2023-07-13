@@ -1,4 +1,4 @@
-Chapter 2: Developing a Growth Mindset for Resilience: Understanding the Importance of a Growth Mindset in Developing Resilience
+Understanding the Importance of a Growth Mindset in Developing Resilience
 ================================================================================================================================
 
 A growth mindset is an essential component of developing resilience as a social worker. It involves a belief that challenges and setbacks can be opportunities for growth and learning, rather than fixed limitations. In this chapter, we will explore why a growth mindset is important for resilience and how it can be developed.

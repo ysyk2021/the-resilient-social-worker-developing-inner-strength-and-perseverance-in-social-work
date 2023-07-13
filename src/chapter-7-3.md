@@ -1,4 +1,4 @@
-Chapter 6: Navigating Ethics and Boundaries: Building Ethical Decision-Making Skills
+Building Ethical Decision-Making Skills
 ====================================================================================
 
 As social workers, navigating ethics and boundaries is an essential component of providing effective care. In this chapter, we will explore the importance of building ethical decision-making skills and strategies for doing so.

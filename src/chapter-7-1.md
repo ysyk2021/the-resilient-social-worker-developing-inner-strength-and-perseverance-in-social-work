@@ -1,4 +1,4 @@
-Chapter 6: Navigating Ethics and Boundaries: The Impact of Ethics and Boundaries on Social Work
+The Impact of Ethics and Boundaries on Social Work
 ===============================================================================================
 
 Ethics and boundaries are essential components of social work practice. They provide a framework for ensuring that social workers provide ethical, effective, and professional support to their clients. In this chapter, we will explore the impact of ethics and boundaries on social work.

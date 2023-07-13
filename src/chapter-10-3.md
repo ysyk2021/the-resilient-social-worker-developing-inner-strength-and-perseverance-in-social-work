@@ -1,4 +1,4 @@
-Chapter 9: Applying Resilience to Professional Growth: Building Skills Through Resilience
+Building Skills Through Resilience
 =========================================================================================
 
 Resilience is not only important for coping with stress and adversity in social work, but it also plays a critical role in professional growth. In this chapter, we will explore how resilience can help social workers build skills and advance their careers.

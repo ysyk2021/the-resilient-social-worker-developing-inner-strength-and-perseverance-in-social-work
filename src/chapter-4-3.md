@@ -1,4 +1,4 @@
-Chapter 3: Building Self-Care Strategies: Building Healthy Boundaries
+Building Healthy Boundaries
 =====================================================================
 
 Building healthy boundaries is an essential component of practicing self-care as a social worker. In this chapter, we will explore the importance of setting and maintaining boundaries, signs of unhealthy boundaries, and strategies for building healthy boundaries.

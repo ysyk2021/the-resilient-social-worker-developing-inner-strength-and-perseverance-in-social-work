@@ -1,4 +1,4 @@
-Chapter 1: Understanding Resilience: What is Resilience?
+What is Resilience?
 ========================================================
 
 Resilience is the ability to adapt and recover from difficult situations. It involves maintaining a positive outlook, staying motivated, and persevering through challenges. Resilience is an essential skill for social workers, who often work in complex and emotionally demanding environments.

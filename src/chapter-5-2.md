@@ -1,4 +1,4 @@
-Chapter 4: Building Support Systems: Techniques for Building a Support System
+Techniques for Building a Support System
 =============================================================================
 
 Social work is a challenging and often emotionally demanding field. Social workers often face difficult cases and situations that can take a toll on their emotional and mental well-being. Building a strong support system is essential for social workers to cope with the challenges of their work and maintain their well-being. In this chapter, we will explore techniques for building a support system.

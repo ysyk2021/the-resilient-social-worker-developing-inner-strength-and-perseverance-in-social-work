@@ -1,4 +1,4 @@
-Chapter 8: Applying Resilience to Personal Growth: Setting Goals for Personal Growth through Resilience
+Setting Goals for Personal Growth through Resilience
 =======================================================================================================
 
 Resilience is a critical skill for social workers to develop, as it enables them to navigate the challenges of their profession with greater ease. In addition to helping social workers manage stress and adversity in the workplace, resilience can also be applied to personal growth and development. In this chapter, we will explore how social workers can set goals for personal growth through resilience.

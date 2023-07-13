@@ -1,4 +1,4 @@
-Chapter 6: Navigating Ethics and Boundaries: Techniques for Navigating Ethical Dilemmas
+Techniques for Navigating Ethical Dilemmas
 =======================================================================================
 
 Social workers are often faced with ethical dilemmas in their practice. These dilemmas can be complex and challenging to navigate, requiring social workers to rely on a range of techniques and strategies to ensure that they provide ethical, effective, and professional support to their clients. In this chapter, we will explore techniques for navigating ethical dilemmas.

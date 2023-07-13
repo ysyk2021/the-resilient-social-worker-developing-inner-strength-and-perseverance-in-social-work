@@ -1,7 +1,6 @@
 # Summary
 
 - [Introduction](README.md)
-- [Introduction](chapter-1.md)
   - [Why resilience is important in social work](chapter-1-1.md)
   - [The challenges of social work](chapter-1-2.md)
   - [The role of The Resilient Social Worker](chapter-1-3.md)
@@ -41,8 +40,4 @@
   - [Using resilience for career development](chapter-10-1.md)
   - [Setting goals for professional growth through resilience](chapter-10-2.md)
   - [Building skills through resilience](chapter-10-3.md)
-- [Conclusion](chapter-11.md)
-  - [The ongoing journey of developing resilience as a social worker](chapter-11-1.md)
-  - [Final thoughts and recommendations for readers](chapter-11-2.md)
 - [Conclusion](conclusion.md)
-- [Contacts](contacts.md)

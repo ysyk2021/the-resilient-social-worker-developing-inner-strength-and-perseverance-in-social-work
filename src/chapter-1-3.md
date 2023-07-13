@@ -1,4 +1,4 @@
-Introduction: The Role of The Resilient Social Worker
+The Role of The Resilient Social Worker
 =====================================================
 
 Social work is a demanding and emotionally challenging profession. Social workers are often called upon to provide support, assistance, and advocacy for individuals and communities facing complex problems and issues. To be effective in this role, social workers must develop resilience - the ability to bounce back from setbacks, adapt to change, and maintain a sense of optimism and motivation in the face of adversity.

@@ -1,4 +1,4 @@
-Chapter 3: Building Self-Care Strategies: Techniques for Practicing Self-Care as a Social Worker
+Techniques for Practicing Self-Care as a Social Worker
 ================================================================================================
 
 Self-care is an essential component of building resilience and perseverance in social work. In this chapter, we will explore different techniques for practicing self-care as a social worker.

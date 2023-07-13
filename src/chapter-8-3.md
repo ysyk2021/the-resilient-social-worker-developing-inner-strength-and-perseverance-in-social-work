@@ -1,4 +1,4 @@
-Chapter 7: Coping with Trauma and Secondary Trauma: Building Resilience in the Face of Adversity
+Building Resilience in the Face of Adversity
 ================================================================================================
 
 Trauma and secondary trauma are common experiences for social workers in the field. They can cause significant emotional and psychological distress, and impact the well-being and effectiveness of social workers. In this chapter, we will explore strategies for coping with trauma and secondary trauma, and building resilience in the face of adversity.

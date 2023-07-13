@@ -1,4 +1,4 @@
-Chapter 3: Building Self-Care Strategies: Recognizing Signs of Burnout
+Recognizing Signs of Burnout
 ======================================================================
 
 Self-care is an essential component of building resilience and perseverance in social work. In this chapter, we will explore the importance of self-care, how to recognize signs of burnout, and strategies for building effective self-care practices.

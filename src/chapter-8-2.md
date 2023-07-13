@@ -1,4 +1,4 @@
-Chapter 7: Coping with Trauma and Secondary Trauma: Techniques for Coping with Trauma and Secondary Trauma
+Techniques for Coping with Trauma and Secondary Trauma
 ==========================================================================================================
 
 Trauma and secondary trauma are common experiences for social workers in the field. They can cause significant emotional and psychological distress, and impact the well-being and effectiveness of social workers. In this chapter, we will explore techniques for coping with trauma and secondary trauma.

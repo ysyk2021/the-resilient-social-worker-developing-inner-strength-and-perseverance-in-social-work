@@ -1,4 +1,4 @@
-Chapter 5: Building Cultural Competence: Building Empathy and Understanding with Diverse Populations
+Building Empathy and Understanding with Diverse Populations
 ====================================================================================================
 
 Social workers work with a diverse range of individuals, families, and communities from various cultural backgrounds. Building cultural competence is essential for social workers to effectively engage with and provide support to diverse populations. In this chapter, we will explore techniques for building empathy and understanding with diverse populations.

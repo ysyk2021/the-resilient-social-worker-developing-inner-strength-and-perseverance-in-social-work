@@ -1,4 +1,4 @@
-Chapter 8: Applying Resilience to Personal Growth: Using Resilience for Personal Development
+Using Resilience for Personal Development
 ============================================================================================
 
 Resilience is not only essential for coping with the challenges of social work; it can also be applied to personal growth and development. In this chapter, we will explore how resilience can be used to promote personal growth and development.

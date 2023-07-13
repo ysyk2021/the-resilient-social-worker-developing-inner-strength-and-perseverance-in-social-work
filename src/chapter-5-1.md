@@ -1,4 +1,4 @@
-Chapter 4: Building Support Systems: The Importance of Support Systems in Social Work
+The Importance of Support Systems in Social Work
 =====================================================================================
 
 Social work is a challenging and emotionally demanding field that requires social workers to provide support and assistance to individuals, families, and communities who are facing difficult situations. In order to effectively navigate the demands of their work and maintain their well-being, social workers need to build strong support systems. In this chapter, we will explore the importance of support systems in social work.

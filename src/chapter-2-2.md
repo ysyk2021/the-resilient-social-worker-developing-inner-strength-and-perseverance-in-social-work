@@ -1,4 +1,4 @@
-Chapter 1: Understanding Resilience: Types of Resilience
+Types of Resilience
 ========================================================
 
 Resilience is a critical skill for social workers, and there are different types of resilience that can be developed to help navigate the challenges of the profession. In this chapter, we will explore the different types of resilience that social workers may need to develop.

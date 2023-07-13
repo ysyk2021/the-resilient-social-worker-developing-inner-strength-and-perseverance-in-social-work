@@ -1,4 +1,4 @@
-Chapter 1: Understanding Resilience: The Benefits of Being a Resilient Social Worker
+The Benefits of Being a Resilient Social Worker
 ====================================================================================
 
 Resilience is an essential skill for social workers, who often face challenging and emotionally demanding work environments. Resilience involves the ability to bounce back from setbacks, adapt to change, and maintain a sense of optimism and motivation in the face of adversity. In this chapter, we will explore the benefits of being a resilient social worker.

@@ -1,4 +1,4 @@
-Chapter 5: Building Cultural Competence: Techniques for Building Cultural Competence
+Techniques for Building Cultural Competence
 ====================================================================================
 
 In social work, building cultural competence is essential for providing effective support and advocacy to clients from diverse backgrounds. In this chapter, we will explore techniques for building cultural competence.

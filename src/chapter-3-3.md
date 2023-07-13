@@ -1,4 +1,4 @@
-Chapter 2: Developing a Growth Mindset for Resilience: Overcoming Obstacles to Resilience
+Overcoming Obstacles to Resilience
 =========================================================================================
 
 Developing a growth mindset is an important part of building resilience as a social worker. A growth mindset involves seeing challenges and setbacks as opportunities for learning and growth, rather than as fixed limitations. In this chapter, we will explore how social workers can develop a growth mindset and overcome obstacles to resilience.

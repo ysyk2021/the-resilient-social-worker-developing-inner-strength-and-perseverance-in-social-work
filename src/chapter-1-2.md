@@ -1,4 +1,4 @@
-Introduction: The Challenges of Social Work
+The Challenges of Social Work
 ===========================================
 
 Social work is a challenging and demanding profession that requires a high level of emotional intelligence, empathy, and perseverance. Social workers are often called upon to provide support, assistance, and advocacy for individuals and communities facing complex problems and issues. In this chapter, we will explore the challenges of social work and how resilience can help social workers navigate these challenges.

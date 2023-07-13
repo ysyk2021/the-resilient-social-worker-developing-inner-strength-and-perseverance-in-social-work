@@ -1,4 +1,4 @@
-Chapter 9: Applying Resilience to Professional Growth: Using Resilience for Career Development
+Using Resilience for Career Development
 ==============================================================================================
 
 Resilience is a critical skill for social workers, but it also has applications beyond day-to-day job performance. By applying resilience to professional growth and career development, social workers can build the skills and knowledge needed to advance their careers and make a greater impact in their communities. In this chapter, we will explore how social workers can use resilience to drive their professional development.

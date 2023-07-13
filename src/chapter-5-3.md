@@ -1,4 +1,4 @@
-Chapter 4: Building Support Systems: Leveraging Supervision and Mentorship
+Leveraging Supervision and Mentorship
 ==========================================================================
 
 Social work can be a highly stressful and emotionally demanding profession. Building support systems is essential for maintaining resilience and coping with the challenges of the job. In this chapter, we will explore how social workers can leverage supervision and mentorship to build effective support systems.

@@ -1,4 +1,4 @@
-Chapter 7: Coping with Trauma and Secondary Trauma: The Impact of Trauma and Secondary Trauma on Social Work
+The Impact of Trauma and Secondary Trauma on Social Work
 ============================================================================================================
 
 Trauma and secondary trauma are common experiences for social workers in the field. They can have a significant impact on the emotional and mental well-being of social workers, as well as their ability to effectively provide support to their clients. In this chapter, we will explore the impact of trauma and secondary trauma on social work.

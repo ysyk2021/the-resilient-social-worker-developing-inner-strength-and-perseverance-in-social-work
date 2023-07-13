@@ -1,4 +1,4 @@
-Conclusion: Final Thoughts and Recommendations for Readers
+Final Thoughts and Recommendations for Readers
 ==========================================================
 
 In this book, we have explored the importance of resilience in social work and provided strategies for developing inner strength and perseverance. Resilience is essential for social workers, who face numerous challenges and stresses in their profession.

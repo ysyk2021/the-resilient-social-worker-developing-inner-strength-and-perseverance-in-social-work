@@ -1,4 +1,4 @@
-Chapter 8: Applying Resilience to Personal Growth: Incorporating Self-Reflection into the Process
+Incorporating Self-Reflection into the Process
 =================================================================================================
 
 Self-reflection is a critical component of personal growth and development. By reflecting on our experiences, thoughts, and emotions, we can gain insight into ourselves and identify areas where growth and development are needed. In this chapter, we will explore how social workers can incorporate self-reflection into the process of applying resilience to personal growth.

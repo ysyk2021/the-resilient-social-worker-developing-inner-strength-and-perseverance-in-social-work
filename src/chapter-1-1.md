@@ -1,4 +1,4 @@
-Introduction: Why Resilience is Important in Social Work
+Why Resilience is Important in Social Work
 ========================================================
 
 Social work can be a highly stressful and emotionally challenging profession. Social workers are often called upon to provide support, assistance, and advocacy for individuals and communities facing complex problems and issues. In this chapter, we will explore why resilience is important in social work and how it can help social workers cope with the demands of the profession.

@@ -1,4 +1,4 @@
-Conclusion: The Ongoing Journey of Developing Resilience as a Social Worker
+The Ongoing Journey of Developing Resilience as a Social Worker
 ===========================================================================
 
 Developing resilience is an ongoing journey for social workers. It requires constant attention and effort to maintain inner strength and perseverance in the face of challenges. In this chapter, we will discuss the importance of continuing to develop resilience throughout your career as a social worker.

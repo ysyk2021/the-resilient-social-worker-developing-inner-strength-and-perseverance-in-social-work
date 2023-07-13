@@ -1,4 +1,4 @@
-Chapter 5: Building Cultural Competence: Understanding the Role of Cultural Competence in Social Work
+Understanding the Role of Cultural Competence in Social Work
 =====================================================================================================
 
 Cultural competence is a critical skill for social workers to develop. It involves understanding, appreciating, and respecting different cultural backgrounds and perspectives. In this chapter, we will explore the role of cultural competence in social work.
