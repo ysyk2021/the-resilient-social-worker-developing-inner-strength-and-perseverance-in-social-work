@@ -8,5 +8,4 @@ Whether you are a new or experienced social worker, this book offers valuable gu
 
 If you're ready to take your social work practice to the next level and develop the inner strength and perseverance you need to succeed, The Resilient Social Worker is an essential resource that will help you achieve your goals. It's a must-read for anyone looking to build resilience and make a difference in their practice.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
