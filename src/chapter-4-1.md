@@ -1,1 +1,4 @@
-sorry, 您的ip已被封禁,本服务网址是<https://c.binjie.fun> 如需合作或认为是误封需要解封的请前往<https://www.ip.cn/> 查询ip信息,并发送信息至邮件 gpt33@binjie.site 如需合作也可联系此邮箱，站长会定期看邮件并处理解封和合作问题
+Techniques for Practicing Self-Care as a Social Worker
+=================================================================
+
+Social work is a demanding and emotionally taxing profession that requires practitioners to constantly navigate challenging situations and support individuals facing adversity. In order to provide effective care to others, it is crucial for social workers to prioritize their own well-being and practice self-care. This chapter explores various techniques and strategies that can help social workers develop inner strength and perseverance by taking care of themselves.
