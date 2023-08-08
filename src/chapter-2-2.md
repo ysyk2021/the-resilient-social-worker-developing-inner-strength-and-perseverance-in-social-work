@@ -51,5 +51,3 @@ Conclusion
 ----------
 
 Resilience is not a one-size-fits-all concept; it exists in various forms and dimensions. Understanding the different types of resilience---individual, community, organizational, and societal---provides valuable insights for social workers in fostering resilience in their practice. By recognizing these different dimensions, social workers can tailor their interventions and efforts to promote resilience at multiple levels, empowering individuals, communities, organizations, and society as a whole.
-
-In the next chapter, we will explore practical strategies for building resilience within different types, providing guidance on how social workers can foster individual, community, organizational, and societal resilience effectively.

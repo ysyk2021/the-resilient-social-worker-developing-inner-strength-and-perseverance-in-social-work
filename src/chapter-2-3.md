@@ -47,5 +47,3 @@ Conclusion
 ----------
 
 Being a resilient social worker brings numerous benefits, including enhanced emotional well-being, strengthened professional growth, improved client relationships, and a focus on self-care and work-life balance. Resilience helps social workers navigate the challenges of the profession, maintain their passion for helping others, and continue providing high-quality services to those in need.
-
-In the next chapter, we will explore practical strategies for building resilience as a social worker and provide actionable steps for incorporating resilience-building practices into daily professional life.

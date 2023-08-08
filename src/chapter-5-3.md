@@ -51,5 +51,3 @@ Conclusion
 ----------
 
 Supervision and mentorship are invaluable resources for social workers seeking to develop inner strength and perseverance. By leveraging supervision and mentorship effectively, social workers can enhance their reflective practice, receive guidance and support, and strengthen their professional competence. Organizations that prioritize supervision and mentorship create a more resilient and empowered workforce capable of making a positive impact in the lives of clients and communities.
-
-In the next chapter, we will explore practical strategies and tools for self-reflection and self-care, which further contribute to social workers' resilience and well-being.

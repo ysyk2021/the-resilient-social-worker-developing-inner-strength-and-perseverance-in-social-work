@@ -48,5 +48,3 @@ Conclusion
 ----------
 
 Resilience is a vital concept in social work practice, enabling social workers to empower individuals, foster growth, enhance well-being, promote community resilience, and navigate complex systems. By understanding the nature of resilience and employing strategies to cultivate it, social workers can make a significant impact in helping individuals and communities overcome challenges and thrive in the face of adversity.
-
-In the next chapter, we will explore the factors that contribute to resilience and delve deeper into how social workers can promote and strengthen resilience in their clients.

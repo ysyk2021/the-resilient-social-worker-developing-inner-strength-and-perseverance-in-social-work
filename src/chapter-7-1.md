@@ -61,4 +61,4 @@ Integrating ethics and boundaries is crucial for ethical and effective social wo
 Conclusion
 ----------
 
-Ethics and boundaries are integral to the practice of social work, shaping the actions, decisions, and well-being of social workers. By embodying ethical principles, maintaining professional boundaries, and integrating them into their practice, social workers can cultivate inner strength, resilience, and perseverance. In the next chapter, we will explore strategies for managing stress and building self-care practices to sustain social workers' personal and professional well-being.
+Ethics and boundaries are integral to the practice of social work, shaping the actions, decisions, and well-being of social workers. By embodying ethical principles, maintaining professional boundaries, and integrating them into their practice, social workers can cultivate inner strength, resilience, and perseverance.

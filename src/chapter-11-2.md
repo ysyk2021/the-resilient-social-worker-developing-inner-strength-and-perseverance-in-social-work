@@ -9,4 +9,3 @@ As you continue your journey as a social worker, we recommend that you prioritiz
 
 Finally, we encourage you to continue learning and growing as a social worker. Attend conferences and training programs, read books and articles on current topics, and seek out opportunities for continuing education. By investing in your own development and building your resilience, you can make a greater impact in your community and help promote positive change in society.
 
-

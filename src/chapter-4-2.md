@@ -46,34 +46,3 @@ Here are some strategies social workers can implement to build and maintain heal
 ### Conclusion
 
 Building healthy boundaries is essential for social workers to navigate their demanding profession while safeguarding their own well-being. By recognizing the different types of boundaries, understanding their benefits, and implementing strategies to establish and maintain them, social workers can enhance their resilience, professionalism, and the quality of care they provide to their clients.
-
-Recognizing Signs of Burnout
----------------------------------------
-
-In this chapter, we will explore the signs and symptoms of burnout experienced by social workers. Burnout is a common occupational hazard in social work due to the emotionally demanding nature of the profession. Understanding and identifying these signs is crucial for early intervention and effective self-care.
-
-### Defining Burnout
-
-Burnout can be defined as a state of emotional, physical, and mental exhaustion caused by chronic work-related stress. It is characterized by feelings of detachment, cynicism, and reduced effectiveness in one's professional role.
-
-### Signs and Symptoms
-
-Social workers may experience various signs and symptoms indicating burnout:
-
-1. **Emotional Exhaustion**: Feeling emotionally drained, overwhelmed, or unable to empathize with clients' struggles.
-
-2. **Depersonalization**: Developing negative or cynical attitudes towards clients, colleagues, or the profession itself.
-
-3. **Reduced Sense of Accomplishment**: Feeling ineffective, lacking motivation, or perceiving a diminished sense of personal achievement.
-
-4. **Physical Symptoms**: Experiencing chronic fatigue, sleep disturbances, headaches, or gastrointestinal issues due to prolonged stress.
-
-5. **Increased Irritability**: Becoming easily frustrated, agitated, or short-tempered both at work and in personal relationships.
-
-6. **Decreased Concentration**: Difficulty focusing, forgetfulness, or reduced productivity.
-
-7. **Isolation**: Withdrawing from social interactions, feeling isolated, or experiencing conflicts in personal relationships.
-
-### Causes of Burnout
-
-Several factors contribute to burnout among social workers

@@ -41,3 +41,4 @@
   - [Setting goals for professional growth through resilience](chapter-10-2.md)
   - [Building skills through resilience](chapter-10-3.md)
 - [Conclusion](conclusion.md)
+- [Contacts](contacts.md)
