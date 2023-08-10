@@ -1,4 +1,4 @@
-Chapter 5: Building Empathy and Understanding with Diverse Populations
+Building Empathy and Understanding with Diverse Populations
 ======================================================================
 
 Introduction

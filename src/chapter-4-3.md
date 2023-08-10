@@ -1,4 +1,4 @@
-Chapter: Building Healthy Boundaries
+Building Healthy Boundaries
 ====================================
 
 In this chapter, we will explore the concept of building healthy boundaries in the context of social work. As social workers, it is crucial to establish and maintain appropriate boundaries with clients, colleagues, and organizations to ensure effective and ethical practice.

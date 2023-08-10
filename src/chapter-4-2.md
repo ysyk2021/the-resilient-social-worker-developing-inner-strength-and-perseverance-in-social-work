@@ -1,4 +1,4 @@
-Chapter 5: Recognizing Signs of Burnout
+Recognizing Signs of Burnout
 =======================================
 
 In the demanding field of social work, it is not uncommon for professionals to experience burnout. As social workers tirelessly strive to support individuals and communities in need, it is important to recognize the signs that indicate one may be heading towards burnout. By identifying these signs early on, social workers can take proactive steps to maintain their well-being and continue serving others effectively.
