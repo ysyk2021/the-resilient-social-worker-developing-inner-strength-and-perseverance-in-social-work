@@ -1,5 +1,3 @@
-Chapter 5: Building Cultural Competence
-=======================================
 
 In social work, cultural competence is essential for building positive relationships with clients and colleagues from diverse backgrounds. In this chapter, we will explore the role of cultural competence in social work and provide techniques for building empathy and understanding with diverse populations.
 

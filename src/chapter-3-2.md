@@ -1,4 +1,3 @@
-# Techniques for Developing a Growth Mindset
 
 In the field of social work, developing a growth mindset is essential for personal and professional growth. A growth mindset is the belief that abilities and intelligence can be developed through dedication, effort, and learning. It allows social workers to approach challenges with resilience, embrace opportunities for self-improvement, and persevere in the face of obstacles. This chapter explores various techniques that can help social workers cultivate a growth mindset.
 

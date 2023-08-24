@@ -1,5 +1,3 @@
-What is Resilience?
-==============================
 
 In the field of social work, resilience plays a vital role in empowering individuals and communities to overcome adversity and thrive amidst challenges. So, what exactly is resilience? This chapter delves into the concept of resilience and explores its significance in the context of social work practice.
 

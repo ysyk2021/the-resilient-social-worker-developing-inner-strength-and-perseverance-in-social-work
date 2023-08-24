@@ -1,5 +1,3 @@
-Overcoming Obstacles to Resilience
-==============================================
 
 In the journey towards developing resilience as a social worker, various obstacles may arise that challenge our inner strength and perseverance. This chapter explores some common hurdles faced by social workers and provides strategies for overcoming these obstacles to cultivate resilience.
 

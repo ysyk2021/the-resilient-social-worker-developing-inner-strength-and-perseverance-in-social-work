@@ -1,5 +1,3 @@
-Techniques for Building Cultural Competence
-====================================================
 
 In today's diverse society, social workers must possess strong cultural competence skills to effectively engage with individuals and communities from various cultural backgrounds. This chapter aims to provide practical techniques for social workers to build their cultural competence, enabling them to deliver culturally sensitive and inclusive services.
 

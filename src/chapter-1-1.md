@@ -1,5 +1,3 @@
-Why Resilience is Important in Social Work
-=====================================================
 
 Resilience, the ability to bounce back from adversity and maintain well-being in the face of stress and challenges, is of utmost importance in the field of social work. This chapter will explore the significance of resilience for social workers and discuss the various reasons why it is a vital quality in this profession.
 

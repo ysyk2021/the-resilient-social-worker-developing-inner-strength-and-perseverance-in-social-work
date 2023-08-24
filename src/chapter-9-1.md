@@ -1,5 +1,3 @@
-Using Resilience for Personal Development
-=====================================================
 
 Resilience is not only essential for social workers in their professional practice but also plays a vital role in personal development. In this chapter, we explore how individuals can harness resilience to cultivate personal growth and enhance their overall well-being.
 

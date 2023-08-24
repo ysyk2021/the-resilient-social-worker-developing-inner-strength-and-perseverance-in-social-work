@@ -1,5 +1,3 @@
-Conclusion
-==========
 
 In this book, we have explored the concept of resilience and its importance in social work practice. We have discussed various strategies and techniques for developing inner strength and perseverance in the face of adversity.
 

@@ -1,5 +1,3 @@
-Understanding the Role of Cultural Competence in Social Work
-=======================================================================
 
 In this chapter, we will explore the significance of cultural competence in the field of social work. As social workers, it is crucial to have a deep understanding and appreciation for diverse cultures and how they shape individuals' experiences within their communities. Cultural competence allows us to effectively engage with clients from different backgrounds while ensuring equitable and inclusive support.
 

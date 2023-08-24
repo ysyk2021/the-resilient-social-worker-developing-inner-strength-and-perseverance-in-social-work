@@ -1,4 +1,3 @@
-# Techniques for Practicing Self-Care as a Social Worker
 
 In the demanding field of social work, practicing self-care is essential for maintaining physical, emotional, and mental well-being. Self-care involves engaging in activities and practices that promote self-nurturing, stress reduction, and overall health. This chapter explores various techniques that social workers can incorporate into their daily lives to prioritize their own self-care.
 

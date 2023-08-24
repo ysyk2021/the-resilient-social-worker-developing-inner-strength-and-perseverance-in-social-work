@@ -1,5 +1,3 @@
-The Impact of Ethics and Boundaries on Social Work
-=============================================================
 
 Ethics and boundaries are fundamental to the practice of social work. In this chapter, we will delve into the profound impact that ethics and boundaries have on social work, and how they contribute to the development of inner strength and perseverance in social workers.
 

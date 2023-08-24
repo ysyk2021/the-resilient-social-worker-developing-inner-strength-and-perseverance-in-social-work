@@ -1,5 +1,3 @@
-The Impact of Trauma and Secondary Trauma on Social Work
-===================================================================
 
 Trauma and secondary trauma are pervasive in the field of social work, affecting both the individuals being served and the social workers themselves. In this chapter, we examine the profound impact of trauma and secondary trauma on social work practice and explore strategies for effectively addressing these challenges.
 

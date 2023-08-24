@@ -1,5 +1,3 @@
-The Role of the Resilient Social Worker
-===================================================
 
 Resilience plays a crucial role in the profession of social work. In this chapter, we explore the importance of resilience and the various roles resilient social workers play in their practice.
 

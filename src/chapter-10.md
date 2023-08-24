@@ -1,5 +1,3 @@
-Chapter 9: Applying Resilience to Professional Growth
-=====================================================
 
 Resilience is not only important for coping with the challenges of social work, but it can also be applied to professional growth and development. In this chapter, we will explore how resilience can be used to promote professional growth.
 

@@ -1,5 +1,3 @@
-The Importance of Support Systems in Social Work
-===========================================================
 
 In the demanding and often emotionally challenging field of social work, having a strong support system is crucial for maintaining resilience, well-being, and professional effectiveness. This chapter will explore the importance of support systems in social work and provide strategies for creating and nurturing these essential networks.
 

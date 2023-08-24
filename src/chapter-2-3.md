@@ -1,5 +1,3 @@
-The Benefits of Being a Resilient Social Worker
-==========================================================
 
 In the demanding field of social work, cultivating resilience is not only beneficial for clients but also crucial for social workers themselves. This chapter explores the numerous advantages of being a resilient social worker and highlights how resilience can positively impact professional growth and well-being.
 

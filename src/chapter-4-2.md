@@ -1,4 +1,3 @@
-# Recognizing Signs of Burnout
 
 In the demanding field of social work, burnout is a prevalent issue that can significantly impact the well-being and effectiveness of social workers. Burnout occurs when prolonged exposure to stress and overwhelming job demands leads to physical, emotional, and mental exhaustion. This chapter aims to help social workers recognize the signs of burnout in themselves and their colleagues, enabling them to take proactive steps to prevent and address it.
 

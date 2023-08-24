@@ -1,5 +1,3 @@
-Chapter 4: Building Support Systems
-===================================
 
 Social work is a challenging profession that can easily lead to burnout and emotional exhaustion. To stay resilient in this field, it is important for social workers to have strong support systems in place. In this chapter, we will explore the importance of support systems in social work and techniques for building them.
 

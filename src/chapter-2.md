@@ -1,5 +1,3 @@
-Chapter 1: Understanding Resilience
-===================================
 
 Resilience is a critical skill for social workers, who often work in challenging and emotionally demanding environments. Resilience involves the ability to adapt to change, bounce back from setbacks, and maintain a sense of optimism and motivation in the face of adversity. In this chapter, we will explore what resilience is, the different types of resilience, and the benefits of being a resilient social worker.
 

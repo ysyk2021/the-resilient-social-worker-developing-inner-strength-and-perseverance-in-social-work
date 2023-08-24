@@ -1,5 +1,3 @@
-Chapter 7: Coping with Trauma and Secondary Trauma
-==================================================
 
 As a social worker, exposure to trauma and secondary trauma is inevitable. In this chapter, we will explore the impact of trauma and secondary trauma on social work, techniques for coping with trauma and secondary trauma, and building resilience in the face of adversity.
 

@@ -1,4 +1,3 @@
-# Techniques for Building a Support System
 
 In the challenging field of social work, having a strong support system is crucial for maintaining resilience and well-being. A support system offers social workers emotional validation, guidance, and a sense of connection. This chapter explores various techniques for building and nurturing a support system that can help social workers navigate the demands of their profession and promote personal growth.
 

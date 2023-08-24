@@ -1,5 +1,3 @@
-Chapter 3: Building Self-Care Strategies
-========================================
 
 Self-care is a critical component of resilience for social workers. It involves taking intentional steps to care for one's physical, emotional, and mental well-being. In this chapter, we will explore techniques for practicing self-care as a social worker, how to recognize signs of burnout, and how to build healthy boundaries.
 

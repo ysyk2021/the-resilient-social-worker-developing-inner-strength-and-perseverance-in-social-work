@@ -1,5 +1,3 @@
-Incorporating Self-Reflection into the Process
-==========================================================
 
 Self-reflection is a powerful tool that can enhance the resilience and effectiveness of social workers. In this chapter, we explore the importance of self-reflection and how it can be incorporated into the social work process to develop inner strength and perseverance.
 

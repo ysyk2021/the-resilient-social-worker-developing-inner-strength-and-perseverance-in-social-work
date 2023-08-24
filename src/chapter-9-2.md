@@ -1,5 +1,3 @@
-Setting Goals for Personal Growth through Resilience
-================================================================
 
 Setting goals is a key aspect of personal growth and development. In this chapter, we explore how resilience can be harnessed to set and achieve meaningful goals that support personal growth and well-being.
 

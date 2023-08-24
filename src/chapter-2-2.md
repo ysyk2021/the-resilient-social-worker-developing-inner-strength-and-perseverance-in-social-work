@@ -1,5 +1,3 @@
-Types of Resilience
-==============================
 
 Resilience is a multifaceted concept that encompasses various dimensions and types. In this chapter, we explore different types of resilience that social workers encounter in their practice. Understanding these types can deepen our understanding of resilience and guide our efforts to foster it in individuals and communities.
 

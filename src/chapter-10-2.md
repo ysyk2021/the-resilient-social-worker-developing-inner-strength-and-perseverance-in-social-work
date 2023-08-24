@@ -1,4 +1,3 @@
-# Setting Goals for Professional Growth through Resilience
 
 Setting goals is a powerful strategy for social workers to drive their professional growth and development. By combining goal setting with resilience, social workers can navigate challenges, enhance their skills, and achieve meaningful milestones in their careers. This chapter explores the process of setting goals and utilizing resilience to overcome obstacles, adapt to changes, and ultimately achieve professional growth and success in the field of social work.
 

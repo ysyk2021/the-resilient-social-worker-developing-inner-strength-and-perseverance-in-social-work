@@ -1,5 +1,3 @@
-Introduction
-============
 
 Social work is a demanding and challenging profession that requires a high level of emotional intelligence, empathy, and perseverance. In the face of complex and emotionally charged situations, social workers must maintain their professional boundaries, build positive relationships with clients and colleagues, and remain resilient in the face of adversity. In this book, we will explore the importance of resilience in social work and provide strategies for developing inner strength and perseverance.
 
@@ -22,5 +20,4 @@ Conclusion
 ----------
 
 Developing resilience is essential for social workers to thrive in their personal and professional lives. By investing in their own resilience, social workers can better serve their clients and make a positive impact in their communities. In the following chapters, we will explore different types of resilience that social workers may need to develop and provide strategies for building inner strength and perseverance in the face of challenges.
-
 

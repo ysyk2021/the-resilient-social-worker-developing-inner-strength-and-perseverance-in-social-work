@@ -1,5 +1,3 @@
-Leveraging Supervision and Mentorship
-================================================
 
 Supervision and mentorship play a crucial role in the development of resilient social workers. In this chapter, we will explore how social workers can leverage supervision and mentorship to enhance their inner strength and perseverance in the field of social work.
 

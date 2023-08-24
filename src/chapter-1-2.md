@@ -1,5 +1,3 @@
-The Challenges of Social Work
-=========================================
 
 Social work is a rewarding profession dedicated to helping individuals, families, and communities overcome challenges and improve their well-being. However, the field is not without its own unique set of challenges. This chapter explores the various obstacles social workers face and provides insights on navigating these hurdles with resilience.
 
