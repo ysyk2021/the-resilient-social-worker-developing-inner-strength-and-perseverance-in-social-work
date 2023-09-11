@@ -1,3 +1,6 @@
+# The Resilient Social Worker: Developing Inner Strength and Perseverance in Social Work
+
+Book Link: [https://zhengpublishing.com/the-resilient-social-worker-developing-inner-strength-and-perseverance-in-social-work/](https://zhengpublishing.com/the-resilient-social-worker-developing-inner-strength-and-perseverance-in-social-work/)
 
 The Resilient Social Worker: Developing Inner Strength and Perseverance in Social Work is a guidebook that explores the concept of resilience and its importance in social work practice. The book emphasizes the need for social workers to develop inner strength and perseverance in order to effectively serve their clients and communities.
 
